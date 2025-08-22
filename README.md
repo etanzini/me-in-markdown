@@ -12,4 +12,7 @@ Here's my playlist.
 
 [Github Playlist](https://open.spotify.com/playlist/4ibo8QRbJwaX0YiA4H5bpl?si=6ecc7041d71041b5&pt=5841cb249c788433140e2f650588f111)
 
+Here's my Mood-Board
+[My Mood Board](file:///home/chronos/u-078da4dbe0f22d2476eae96af685f079f42bbd88/MyFiles/Downloads/MoodBoard.png)
+
 
