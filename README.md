@@ -13,6 +13,6 @@ One sport that I love is freeride skiing, for the past 2 years i've been competi
 [Github Playlist](https://open.spotify.com/playlist/4ibo8QRbJwaX0YiA4H5bpl?si=6ecc7041d71041b5&pt=5841cb249c788433140e2f650588f111)
 
 # Here's my Mood-Board
-[My Mood Board](https://www.canva.com/design/DAGwvKijsL0/WWlwfE41Ys3hoIz6IsWnAQ/edit?referrer=mood-boards-landing-page)
 
+<img width="1333" height="2000" alt="MoodBoard" src="https://github.com/user-attachments/assets/489341c5-8bcb-4f45-b0f2-3b4e6ee0ee36" />
 
